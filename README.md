@@ -1,2 +1,2 @@
 # Score
-![](https://imgur.com/TJFRzZN.gif)
+![](https://imgur.com/zUgxt6P.gif)
